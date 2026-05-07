@@ -1,4 +1,4 @@
-
+Enhance Adobe Illustrator for macOS with ultimate Brushes for Adobe Illustrator for macOS - export presets and asset management, the #1 brush. Includes export presets and asset
 
 
 
